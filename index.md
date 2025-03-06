@@ -29,6 +29,7 @@ The Pledge of Chastity:
 ---
 
 Dogma 2025
+
 This approach is intended to embrace simplicity and observational power, a form of retrogradism in the same spirit as Caravaggio, Ribera, and Francisco de Zurbarán’s restrained seriousness. They rejected the idealizing, allegorically laden excesses of mannerism and returned to simple scenes through direct observation of the subject, without affectation. Voluntarism and independence are some of the cornerstones of Dogma 2025, which is also imbued with transparency and a scientific spirit, where discoveries and methods are freely shared and subjected to peer review. In a time when mechanical processes increasingly encroach upon craft, Dogma 2025 asserts the irreplaceable value of human perception and presence.
 
 In an age where images are increasingly mediated, the distinction between direct experience and abstraction grows ever more pronounced. Painting from life is a first-hand engagement with reality—an act of perception that demands presence, adaptation, and response to shifting conditions. Working from photographic sources introduces a degree of separation, reducing the subject to a static imprint, filtered through mechanical constraints. When those images are further altered by unseen processes, they risk becoming impressions of impressions, twice removed from their origin. Dogma 2025 seeks to reclaim the immediacy of observation, insisting on the primacy of the artist’s eye over intermediaries that reshape the world before it is even seen.
