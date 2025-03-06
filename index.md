@@ -42,7 +42,7 @@ As Bondo says in Lars von Trier's The Kingdom: "Videnskaben!"
 
 ---
 
-## Pressis:
+## Press Statement:
 
 Dogma 2025: A Manifesto for Painting in the Age of Mediation
 
